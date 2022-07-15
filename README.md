@@ -1,1 +1,1 @@
-# ista-python-curso2022
+Marco Antonio Fajardo Robles
